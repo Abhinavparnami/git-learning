@@ -1,1 +1,1 @@
-boosted diamond
+ok
